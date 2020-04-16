@@ -1,2 +1,2 @@
-# https://heloiza00.github.io/Decora-es/
+# https://heloiza00.github.io
 Ideias de Decorações
